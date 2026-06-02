@@ -59,4 +59,4 @@ Nas horas vagas, gosto de jogar videogame, estudar e ir ao cinema.
 
 📧 ebernande25@gmail.com
 
-            😶‍🌫️Em um loop constante de evolução pessoal.
+            😶‍🌫️Em um loop constante de evolução pessoal...
